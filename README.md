@@ -1,1 +1,1 @@
-Student of RMTC "RSREU" of the ISP-31 group
+Student of RMBC "RSREU" of the ISP-31 group
